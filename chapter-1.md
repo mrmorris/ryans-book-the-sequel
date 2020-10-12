@@ -1,4 +1,4 @@
-# Chapter 1
+# Chapter 1: The BLUE chapter
 
 It was a dark and stormy night.
 
