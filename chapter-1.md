@@ -1,4 +1,4 @@
-# Chapter 1
+# Chapter 1: The Red Chapter
 
 It was a dark and stormy night.
 
