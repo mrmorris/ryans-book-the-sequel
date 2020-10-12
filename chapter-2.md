@@ -1,3 +1,5 @@
-# Chapter 2
+# Chapter 2!
 
 Welcome to chapter 2
+
+Hello world!
