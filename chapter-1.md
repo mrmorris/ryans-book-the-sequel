@@ -1,4 +1,4 @@
-# Chapter 1: The Red Chapter
+# Chapter 1: The Purple chapter
 
 It was a dark and stormy night.
 
